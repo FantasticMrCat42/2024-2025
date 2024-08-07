@@ -1,4 +1,0 @@
-### Inititial Notes:
-I whoul say that I am here at school to learn and in some ways that is the case but in many cases the school curiculum is esentialy focused on prepearing students for the test and not actualy exploring the topics fully. The perpose the the school is to teach us but because of standerdized testing that esentialy means students dont get much time to explore there interest yet are still presured to know what there pasion is and what they will go to collage for even as early as 8th grade. I mean I know that I specificaly want to go into ML and Comp Sci but I am very much part of the minority of people who just happend to find there interest (no thanks to the education system). I feal that I am still able to learn and stay interested at school. last year i mostly just coasted due to sleep deprevation but I am hoping that this year I can actualy learn.
-
-
